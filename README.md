@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **taddirajesh143@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1cHZZlaIbLwmSjXibw6QsKIp0uAj_RdkG/view?usp=sharing](https://drive.google.com/file/d/1cHZZlaIbLwmSjXibw6QsKIp0uAj_RdkG/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/10YKnfnhps_DMl4sj2msm96f1JV5z5EaJ/view?usp=sharing](https://drive.google.com/file/d/10YKnfnhps_DMl4sj2msm96f1JV5z5EaJ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
